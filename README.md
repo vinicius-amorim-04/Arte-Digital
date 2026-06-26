@@ -16,3 +16,7 @@ Nesta disciplina aprendi os fundamentos da criação artística utilizando ferra
 ## Conclusão
 
 A disciplina me ajudou a entender como utilizar recursos digitais para criar conteúdos visuais de forma criativa e profissional, aplicando princípios de design em diferentes projetos.
+
+## Cursos feitos
+
+https://www.credly.com/go/lprMduKddK9pJ9seREAFQg
